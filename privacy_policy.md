@@ -1,6 +1,6 @@
 ## Privacy Policy
 
-Turker Ozturk built the EksiMeksi app as a Free app. This SERVICE is provided by Turker Ozturk at no cost and is intended for use as is.
+Erdem Topak built the EksiMeksi app as a Free app. This SERVICE is provided by Erdem Topak at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
